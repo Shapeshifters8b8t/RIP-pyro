@@ -18,4 +18,4 @@ I am not responsible for what you do with this information nor am I licensed to 
 
 More information about why pyro is trashy https://github.com/AcaiBerii/pyro
 
-[Referral link for Pyro](https://pyroclient.com/register?referrer=Acai)
+[Referral link for Pyro](https://pyroclient.com/register?referrer=Acai) okay giantnuker term my acc now :)
