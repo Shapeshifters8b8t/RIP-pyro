@@ -17,3 +17,5 @@ Paypal: Indivelopment. Devs: GiantNuker/Ionar originally, idk who makes the tras
 I am not responsible for what you do with this information nor am I licensed to defend you against legal action that may occur.
 
 More information about why pyro is trashy https://github.com/AcaiBerii/pyro
+
+[Referral link for Pyro](https://pyroclient.com/register?referrer=Acai)
