@@ -7,3 +7,6 @@ Pyro is obfuscated with Binscure, if you can find a deobfuscator that's compatib
 ## Other
 Shoutout to Crystallinqq for making oreganol Pyro sauce leek!!!1
 Shoutout to the rest of the Shapeshifters for making this organization!!!1
+
+## To Nuker and Co.
+Sure, revoke my access to your trash block game client, but I WILL get your paypal termed. Pyro allah hatar (TM)
