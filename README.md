@@ -8,5 +8,5 @@ Pyro is obfuscated with Binscure, if you can find a deobfuscator that's compatib
 https://www.youtube.com/watch?v=6823_preTKc
 
 ## Other
-Shoutout to Crystallinqq for making Pyro sauce leek!!!1
+Shoutout to Crystallinqq for making oreganol Pyro sauce leek!!!1
 Shoutout to the rest of the Shapeshifters for making this organization!!!1
