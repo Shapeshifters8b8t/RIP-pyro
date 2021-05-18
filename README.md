@@ -10,3 +10,8 @@ Shoutout to the rest of the Shapeshifters for making this organization!!!1
 
 ## To Nuker and Co.
 Sure, revoke my access to your trash block game client, but I WILL get your paypal termed. Pyro allah hatar (TM)
+
+## Pyro information
+Paypal: Indivelopment. Devs: GiantNuker/Ionar originally, idk who makes the trash now. Domains: pyro.nuker.dev/pyroclient.com.
+
+I am not responsible for what you do with this information nor am I licensed to defend you against legal action that may occur.
