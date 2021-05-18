@@ -15,3 +15,5 @@ Sure, revoke my access to your trash block game client, but I WILL get your payp
 Paypal: Indivelopment. Devs: GiantNuker/Ionar originally, idk who makes the trash now. Domains: pyro.nuker.dev/pyroclient.com.
 
 I am not responsible for what you do with this information nor am I licensed to defend you against legal action that may occur.
+
+More information about why pyro is trashy https://github.com/AcaiBerii/pyro
